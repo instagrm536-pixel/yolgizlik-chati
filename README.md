@@ -1,0 +1,2 @@
+# yolgizlik-chati
+asdasdasdasd
